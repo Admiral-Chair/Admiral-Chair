@@ -7,7 +7,7 @@ If you wish to contact me, pm me on my Reddit.
 
 ![image](https://styles.redditmedia.com/t5_50g920/styles/profileIcon_7uuteryln7m71.jpg?width=256&height=256&frame=1&crop=256:256,smart&s=890e9c7464670fd5bf2134d098616abea74dc24c)
 
-Have this cute picture of a Koala I took myself. :)
+You can steal this cute picture of a Koala I took myself at the Australia Zoo in Sydney. :)
 
 <!---
 Admiral-Chair/Admiral-Chair is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -9,6 +9,8 @@ If you wish to contact me, pm me on my Reddit.
 
 You can steal this cute picture of a Koala I took myself at the Australia Zoo in Sydney. :)
 
+*As long as you don't turn it into an NFT*
+
 <!---
 Admiral-Chair/Admiral-Chair is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.

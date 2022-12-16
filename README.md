@@ -8,7 +8,7 @@ You can steal this cute picture of a Koala I took myself at the Australia Zoo in
 
 *As long as you don't turn it into an NFT*
 
-Socials:
+**Socials:**
 
 [u/Sir_Admiral_Chair on Reddit](https://www.reddit.com/user/Sir_Admiral_Chair)
 

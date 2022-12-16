@@ -1,7 +1,4 @@
-I’m @Admiral-Chair from Reddit (u/Sir_Admiral_Chair), I am making a tutorial for people who struggle to put their phone down, either because they have ADHD, sleeping issues, 
-or even an internet addition or all three. 👀
-
-I could make other things in the future idk, I just do things that catch my interest.
+I’m @Admiral-Chair from Reddit (u/Sir_Admiral_Chair), I got the ADHD and the Autism, I am coolz. I make things randomly, no real grand project, I just do things.
 
 If you wish to contact me, pm me on my Reddit.
 

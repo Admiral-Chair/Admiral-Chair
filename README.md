@@ -10,9 +10,9 @@ You can steal this cute picture of a Koala I took myself at the Australia Zoo in
 
 Socials:
 
-[u/Sir_Admiral_Chair on Reddit](https://www.youtube.com/@adhdkoalabear/)
+[u/Sir_Admiral_Chair on Reddit](https://www.reddit.com/user/Sir_Admiral_Chair)
 
-[ADHD Koala Bear on YouTube](https://www.reddit.com/user/Sir_Admiral_Chair)
+[ADHD Koala Bear on YouTube](https://www.youtube.com/@adhdkoalabear/)
 
 <!---
 Admiral-Chair/Admiral-Chair is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

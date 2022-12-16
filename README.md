@@ -8,6 +8,12 @@ You can steal this cute picture of a Koala I took myself at the Australia Zoo in
 
 *As long as you don't turn it into an NFT*
 
+Socials:
+
+[u/Sir_Admiral_Chair on Reddit](https://www.youtube.com/@adhdkoalabear/)
+
+[ADHD Koala Bear on YouTube](https://www.reddit.com/user/Sir_Admiral_Chair)
+
 <!---
 Admiral-Chair/Admiral-Chair is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.

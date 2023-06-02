@@ -22,3 +22,5 @@ You can click the Preview link to take a look at your changes.
 **Active Projects:**
 
 [Neurodiversity Politcal Strategy](https://github.com/Admiral-Chair/Neurodiversity_Political_Strategy)
+
+[Neurodiversity Toolkit & CINOA](https://github.com/Admiral-Chair/neurodiversity-toolkit)
